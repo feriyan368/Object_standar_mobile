@@ -1,0 +1,1 @@
+# Object_standar_mobile
